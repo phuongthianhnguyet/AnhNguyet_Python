@@ -28,7 +28,7 @@ Do 1 số trục trặc nên máy của em không thể up file powerpoint lên 
 
 ![10](https://github.com/user-attachments/assets/a733c63c-9e46-46ab-bcf8-ea5d08d8e793)
 
-![11](https://github.com/user-attachments/assets/64e54eb4-8963-4900-8a56-7ac8ff75bd20)
+![Blue and Dark Blue Modern Technology Presentation (1)](https://github.com/user-attachments/assets/d1351b2f-0811-47ff-8ff2-be70d3df5439)
 
 ![12](https://github.com/user-attachments/assets/cf0f99d3-c635-4bab-ad99-7c3536c0723d)
 
